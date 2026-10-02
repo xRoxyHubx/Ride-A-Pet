@@ -1,3 +1,4 @@
+[![Reviewed on ScriptBlox](https://scriptblox.com/badge/Ride-A-Pet-RoxyHub-Ride-A-p_et-Auto-farmAuto-RebirthMore-No-key-228621)](https://scriptblox.com/script/Ride-A-Pet-RoxyHub-Ride-A-p_et-Auto-farmAuto-RebirthMore-No-key-228621)
 ## Ride-A-Pet
 # RoxyHub - Ride A Pet
 
